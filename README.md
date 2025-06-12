@@ -1,4 +1,4 @@
-## Hi, I'm Thomas 👋
+### Hi, I'm Thomas 👋
 
 💻 I help founders & creators as a Concierge CTO  
 👨‍💻 Coding, creating and sometimes parenting  
