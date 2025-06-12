@@ -1,9 +1,6 @@
-# Hey,  
-I'm Thomas 👋
-
 ![](banner.png)
 
-
+# Hey, I'm Thomas 👋
 💻 I help founders & creators as a Concierge CTO<br>👨‍💻 Coding, creating and sometimes parenting<br>🧔‍♂️ Also growing a beard<br>📍 Frenchman in Amsterdam
 
 
