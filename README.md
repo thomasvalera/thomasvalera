@@ -6,7 +6,7 @@
 🧔‍♂️ Also growing a beard  
 📍 Frenchman in Amsterdam
 
-🔔 Follow my journey on Instagram
+🔔 Follow my journey on Instagram 
 
       
 ## 🌐 Socials:
